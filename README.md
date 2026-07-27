@@ -1,5 +1,5 @@
 <p align="center">
-..
+𝑺𝒑𝒂𝒓𝒆 𝒎𝒆 𝒐𝒇 𝒊𝒓𝒓𝒂𝒕𝒊𝒐𝒏𝒂𝒍𝒊𝒕𝒚 𝒂𝒏𝒅 𝒊𝒈𝒏𝒐𝒓𝒂𝒏𝒄𝒆..
 
   <img width="734" height="164" alt="17817622552905897123718462879480" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531384008439496754/Untitled129_20260727142859.png?ex=6a6903ff&is=6a67b27f&hm=4116662d396391f34205bd633ac5838abc56dce2f6f009dec4fac9dcd8fc64fb&" />
 
