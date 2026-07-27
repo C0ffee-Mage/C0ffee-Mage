@@ -1,16 +1,44 @@
-## Hi there 👋
+<p align="center">
+..
 
-<!--
-**The-Phantom-Of-The-Opera/The-Phantom-Of-The-Opera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
 
-Here are some ideas to get you started:
+<div align="center">
+---‧₊˚|
+ <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
+-❀-
+ <a href="https://thekingsshadow.atabook.org/?page=1">𝕬𝒕𝒂𝒃𝒐𝒐𝒌</a>
+-❀-
+ <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
+|˚₊‧---
+</div>
+  
+<img width="896" height="632" alt="17817632519646086983173050445209" src="https://github.com/user-attachments/assets/2ad5ff5a-960a-4768-9d3c-124f9a64f9b8" />
+  
+<p align="center">
+- 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  •❀•
+  
+  ✧- 𝒘𝟐𝒊 𝒂𝒍𝒘𝒂𝒚𝒔 -  𝑰'𝒎 𝒎𝒐𝒓𝒆 𝒄𝒐𝒎𝒇𝒐𝒓𝒕𝒂𝒃𝒍𝒆 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒕𝒉𝒓𝒐𝒖𝒈𝒉 𝒘𝒉𝒊𝒔𝒑𝒆𝒓 𝒐𝒓 𝒑𝒂𝒓𝒕𝒚 𝒄𝒉𝒂𝒕𝒔 // 𝒎𝒊𝒈𝒉𝒕 𝒂𝒍𝒔𝒐 𝒃𝒆 𝒐𝒇𝒇𝒕𝒂𝒃 𝒐𝒓 𝒃𝒖𝒔𝒚 𝒔𝒐 𝒘𝒉𝒊𝒔𝒑𝒆𝒓𝒔 𝒊𝒔 𝒕𝒉𝒆 𝒆𝒂𝒔𝒊𝒆𝒔𝒕 𝒘𝒂𝒚 𝑰'𝒍𝒍 𝒔𝒆𝒆 𝒚𝒐𝒖𝒓 𝒎𝒆𝒔𝒔𝒂𝒈𝒆
+
+  
+<p align="left">
+  ✧- 𝑭𝒓𝒊𝒆𝒏𝒅 𝒓𝒆𝒒𝒖𝒆𝒔𝒕𝒔 𝒂𝒓𝒆 𝒅𝒊𝒔𝒂𝒃𝒍𝒆𝒅 𝒕𝒐 𝒂𝒗𝒐𝒊𝒅 𝒓𝒂𝒏𝒅𝒐𝒎 𝒓𝒆𝒒𝒖𝒆𝒔𝒕𝒔 𝒃𝒖𝒕 𝒊𝒇 𝒘𝒆'𝒗𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒆𝒅 𝒇𝒐𝒓 𝒂 𝒍𝒊𝒕𝒕𝒍𝒆 𝒃𝒊𝒕, 𝒂𝒔𝒌 𝒊𝒇 𝒚𝒐𝒖'𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒃𝒆 𝒂𝒅𝒅𝒆𝒅
+
+<p align="left">
+  ✧- 𝑰'𝒎 𝒌𝒊𝒏𝒅𝒂 𝒃𝒂𝒅 𝒂𝒕 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒕𝒐 𝒏𝒆𝒘 𝒑𝒆𝒐𝒑𝒍𝒆 𝒔𝒐 𝑰 𝒎𝒊𝒈𝒉𝒕 𝒃𝒆 𝒅𝒓𝒚 𝒘𝒊𝒕𝒉 𝒓𝒆𝒔𝒑𝒐𝒏𝒔𝒆𝒔 𝒐𝒓 𝒊𝒈𝒏𝒐𝒓𝒆 𝒎𝒆𝒔𝒔𝒂𝒈𝒆𝒔.. 𝑰 𝒅𝒐𝒏'𝒕 𝒓𝒆𝒂𝒍𝒍𝒚 𝒊𝒏𝒊𝒕𝒊𝒂𝒕𝒆 𝒄𝒐𝒏𝒗𝒆𝒓𝒔𝒂𝒕𝒊𝒐𝒏𝒔 𝒐𝒇𝒕𝒆𝒏 𝒆𝒊𝒕𝒉𝒆𝒓 𝒃𝒖𝒕 𝑰 𝒅𝒐 𝒈𝒆𝒕 𝒎𝒐𝒓𝒆 𝒕𝒂𝒍𝒌𝒂𝒕𝒊𝒗𝒆 𝒂𝒇𝒕𝒆𝒓 𝒌𝒏𝒐𝒘𝒊𝒏𝒈 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒂 𝒘𝒉𝒊𝒍𝒆
+
+<p align="left">  
+  ✧- 𝑳𝒊𝒌𝒆𝒔/𝑰𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 - 𝙡𝙚𝙜𝙤 𝙢𝙤𝙣𝙠𝙞𝙚 𝙠𝙞𝙙, 𝙣𝙞𝙣𝙟𝙖𝙜𝙤, 𝙨𝙤𝙣𝙞𝙘, 𝙙𝙚𝙖𝙩𝙝 𝙣𝙤𝙩𝙚, 𝙟𝙟𝙠, 𝒅𝒆𝒎𝒐𝒏 𝒔𝒍𝒂𝒚𝒆𝒓, 𝒎𝒉𝒂, 𝒕𝒉𝒆 𝒐𝒘𝒍 𝒉𝒐𝒖𝒔𝒆, 𝒔𝒉𝒆-𝒓𝒂, 𝒎𝒊𝒓𝒂𝒄𝒖𝒍𝒐𝒖𝒔 𝒍𝒂𝒅𝒚𝒃𝒖𝒈, 𝒂𝒅𝒗𝒆𝒏𝒕𝒖𝒓𝒆 𝒕𝒊𝒎𝒆, 𝒔𝒕𝒆𝒗𝒆𝒏 𝒖𝒏𝒊𝒗𝒆𝒓𝒔𝒆, 𝒎𝒂𝒅𝒐𝒌𝒂 𝒎𝒂𝒈𝒊𝒄𝒂, 𝒄𝒓𝒌, 𝒕𝒉𝒆 𝒔𝒖𝒎𝒎𝒆𝒓 𝒉𝒊𝒌𝒂𝒓𝒖 𝒅𝒊𝒆𝒅, 𝒉𝒂𝒅𝒆𝒔𝒕𝒐𝒘𝒏, 𝒕𝒉𝒆 𝒑𝒉𝒂𝒏𝒕𝒐𝒎 𝒐𝒇 𝒕𝒉𝒆 𝒐𝒑𝒆𝒓𝒂, 𝒂𝒏𝒅 𝒎𝒐𝒓𝒆 𝒑𝒆𝒓𝒉𝒂𝒑𝒔..
+  
+<p align="left">  
+ ✧- 𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐, 𝒔𝒐𝒏𝒊𝒄, 𝒎𝒉𝒂, 𝒋𝒋𝒌 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑
+
+<img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
+
+<div align="center">
+ ⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 -  <a href="https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share">𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐</a>
+ ꒱- ⏔⏔⏔⏔
+</div>
