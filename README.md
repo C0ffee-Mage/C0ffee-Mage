@@ -6,9 +6,9 @@
 <div align="center">
 ---‧₊˚|
  <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
--❤︎-
+-ᗢ-
  <a href="https://thekingsshadow.atabook.org/?page=1">𝕬𝒕𝒂𝒃𝒐𝒐𝒌</a>
--❤︎-
+-ᗢ-
  <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
 |˚₊‧---
 </div>
