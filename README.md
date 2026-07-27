@@ -1,7 +1,7 @@
 <p align="center">
 ..
 
-  <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
+  <img width="734" height="164" alt="17817622552905897123718462879480" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531384008439496754/Untitled129_20260727142859.png?ex=6a6903ff&is=6a67b27f&hm=4116662d396391f34205bd633ac5838abc56dce2f6f009dec4fac9dcd8fc64fb&" />
 
 <div align="center">
 ---‧₊˚|
@@ -13,7 +13,7 @@
 |˚₊‧---
 </div>
   
-<img width="896" height="632" alt="17817632519646086983173050445209" src="https://github.com/user-attachments/assets/2ad5ff5a-960a-4768-9d3c-124f9a64f9b8" />
+<img width="896" height="632" alt="17817632519646086983173050445209" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531384009123430400/Untitled129_20260727142152.png?ex=6a6903ff&is=6a67b27f&hm=40c22d5a0d9677dcdefb7ee0b5730ddfac8993b7e842832ef1226b44ee9f4f98&" />
   
 <p align="center">
 - 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -
@@ -36,9 +36,7 @@
 <p align="left">  
  ✧- 𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐, 𝒔𝒐𝒏𝒊𝒄, 𝒎𝒉𝒂, 𝒋𝒋𝒌 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑
 
-<img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
-
-<div align="center">
+<img width="734" height="116" alt="17817633717776878554477519410369" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531384009681276948/Untitled129_20260727143123.png?ex=6a6903ff&is=6a67b27f&hm=9753b5064183c3ea26a8c6ab35585f021bb067d8b9075adf9f1dd0fe03515a16&r">
  ⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 -  <a href="https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share">𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐</a>
  ꒱- ⏔⏔⏔⏔
 </div>
