@@ -37,6 +37,3 @@
  ✧- 𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐, 𝒔𝒐𝒏𝒊𝒄, 𝒎𝒉𝒂, 𝒋𝒋𝒌 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑
 
 <img width="734" height="116" alt="17817633717776878554477519410369" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531384009681276948/Untitled129_20260727143123.png?ex=6a6903ff&is=6a67b27f&hm=9753b5064183c3ea26a8c6ab35585f021bb067d8b9075adf9f1dd0fe03515a16&r">
- ⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 -  <a href="https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share">𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐</a>
- ꒱- ⏔⏔⏔⏔
-</div>
