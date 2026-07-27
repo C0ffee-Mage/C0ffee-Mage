@@ -6,9 +6,9 @@
 <div align="center">
 ---‧₊˚|
  <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
--❀-
+-❤︎-
  <a href="https://thekingsshadow.atabook.org/?page=1">𝕬𝒕𝒂𝒃𝒐𝒐𝒌</a>
--❀-
+-❤︎-
  <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
 |˚₊‧---
 </div>
@@ -19,7 +19,7 @@
 - 𝒉𝒆/𝒕𝒉𝒆𝒚 , 𝟏𝟗 , 𝒂𝒓𝒐𝒂𝒄𝒆 -
 
 <p align="center">
-  •❀•
+  ⋆☕︎˖
   
   ✧- 𝒘𝟐𝒊 𝒂𝒍𝒘𝒂𝒚𝒔 -  𝑰'𝒎 𝒎𝒐𝒓𝒆 𝒄𝒐𝒎𝒇𝒐𝒓𝒕𝒂𝒃𝒍𝒆 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒕𝒉𝒓𝒐𝒖𝒈𝒉 𝒘𝒉𝒊𝒔𝒑𝒆𝒓 𝒐𝒓 𝒑𝒂𝒓𝒕𝒚 𝒄𝒉𝒂𝒕𝒔 // 𝒎𝒊𝒈𝒉𝒕 𝒂𝒍𝒔𝒐 𝒃𝒆 𝒐𝒇𝒇𝒕𝒂𝒃 𝒐𝒓 𝒃𝒖𝒔𝒚 𝒔𝒐 𝒘𝒉𝒊𝒔𝒑𝒆𝒓𝒔 𝒊𝒔 𝒕𝒉𝒆 𝒆𝒂𝒔𝒊𝒆𝒔𝒕 𝒘𝒂𝒚 𝑰'𝒍𝒍 𝒔𝒆𝒆 𝒚𝒐𝒖𝒓 𝒎𝒆𝒔𝒔𝒂𝒈𝒆
 
