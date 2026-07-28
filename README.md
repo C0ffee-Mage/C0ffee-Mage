@@ -12,7 +12,9 @@ ${\textsf{\color{#574550}"𝑺𝒑𝒂𝒓𝒆 𝒎𝒆 𝒐𝒇 𝒊𝒓𝒓�
  <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
 |˚₊‧---
 </div>
-  
+
+  <div align="center"> 𝒅𝒊𝒔𝒄𝒐𝒓𝒅 - .knightofthelake.
+    
 <img width="896" height="632" alt="17817632519646086983173050445209" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531414866819023038/Untitled130_20260727162318.png?ex=6a6920bc&is=6a67cf3c&hm=c1f06db9cd6841cd360a4141bd08afcb1173c8db9bdc7dad41d305af40792ae5&" />
   
 <p align="center">
