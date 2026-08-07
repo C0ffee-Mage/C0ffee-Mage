@@ -1,8 +1,6 @@
 <p align="center">
 ${\textsf{\color{#574550}"𝑺𝒑𝒂𝒓𝒆 𝒎𝒆 𝒐𝒇 𝒊𝒓𝒓𝒂𝒕𝒊𝒐𝒏𝒂𝒍𝒊𝒕𝒚 𝒂𝒏𝒅 𝒊𝒈𝒏𝒐𝒓𝒂𝒏𝒄𝒆.."}}$
 
-  <img width="734" height="164" alt="17817622552905897123718462879480" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531414865980166377/Untitled130_20260727162909.png?ex=6a6920bc&is=6a67cf3c&hm=697a7da446c9d24c6cc62b7c02ee8df09918bc44fa2a6481856f2b13cfebdebf&" />
-
 <div align="center">
 ---‧₊˚|
  <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
@@ -39,5 +37,3 @@ ${\textsf{\color{#574550}"𝑺𝒑𝒂𝒓𝒆 𝒎𝒆 𝒐𝒇 𝒊𝒓𝒓�
   
 <p align="left">  
  ✧- 𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐, 𝒔𝒐𝒏𝒊𝒄, 𝒄𝒓𝒌, 𝒋𝒋𝒌 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑
-
-<img width="734" height="116" alt="17817633717776878554477519410369" src="https://cdn.discordapp.com/attachments/1468121227620253899/1531414867813073107/Untitled130_20260727163454.png?ex=6a6920bc&is=6a67cf3c&hm=7466c31f7c5fc5eb3075e0cdce9496a134c6aaa8c3222105cadb10743165d507&"/>
